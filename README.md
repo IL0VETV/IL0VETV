@@ -2,7 +2,7 @@
 
 
 
-<img align="right" width="50%" src="https://github.com/IL0VETV/IL0VETV/blob/main/2026_10_19_129_Kleki.png?raw=true"  />
+<img align="right" width="50%" src="https://github.com/IL0VETV/IL0VETV/blob/main/2026_10_20_0ox_Kleki.png?raw=true"  />
 
  
 
